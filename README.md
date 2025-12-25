@@ -1,0 +1,2 @@
+# StealaBrainrot
+CLAIM YOUR BRAINROT
